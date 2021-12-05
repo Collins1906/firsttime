@@ -1,0 +1,2 @@
+# firsttime
+tính nghiệm
